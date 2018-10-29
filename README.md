@@ -1,3 +1,3 @@
 # help_me
 
-# Please, send one photograpy for me
+# Please, send your favorite code for me
